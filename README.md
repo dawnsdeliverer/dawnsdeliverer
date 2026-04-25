@@ -35,7 +35,7 @@
 <br>
 
 <a href="https://dividers-are-us.tumblr.com/post/792459290958053380/minimalist-celestial-dividers">
-<img width="1200" height="70" alt="image" src="https://github.com/user-attachments/assets/de9f04eb-275d-4707-8ffc-9eff939f5ae6"/>
+<img width="1400" src="https://github.com/user-attachments/assets/fe43468b-4663-41ec-86bb-974e37e4980b" />
 </a>
 
 </div>
