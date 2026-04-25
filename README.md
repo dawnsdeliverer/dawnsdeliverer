@@ -6,7 +6,7 @@
 
 <br>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Exo+2&size=23&duration=1500&pause=1000&color=B7C6DD&center=true&vCenter=true&multiline=true&repeat=false&width=200&height=70&lines=%E3%80%8C+Ha+%2C+forget+you+.%E1%90%A3;%E2%A0%80%E2%A0%80Like+I'd+ever+.+%E3%80%8D)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Exo+2&size=20&duration=1500&pause=1000&color=B7C6DD&center=true&vCenter=true&multiline=true&repeat=false&width=200&height=70&lines=%E3%80%8C+Ha+%2C+forget+you+.%E1%90%A3;%E2%A0%80%E2%A0%80Like+I'd+ever+.+%E3%80%8D)](https://git.io/typing-svg)
 
 ︶︶✦₊°˚⊹︰🎕︰⊹˚°₊✦︶︶
 
@@ -22,7 +22,7 @@
 <br>
 <br>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Exo+2&size=23&duration=4960&pause=100&color=F9EFAE&center=true&vCenter=true&repeat=false&width=510&height=30&lines=%E3%80%8C+May+this+blood+be+like+gold+and+never+tarnish+.+%E3%80%8D)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Exo+2&size=20&duration=4960&pause=100&color=F9EFAE&center=true&vCenter=true&repeat=false&width=510&height=30&lines=%E3%80%8C+May+this+blood+be+like+gold+and+never+tarnish+.+%E3%80%8D)](https://git.io/typing-svg)
 
 <br>
 
